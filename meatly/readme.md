@@ -1,0 +1,1 @@
+#file was [moved to nitzel.github.io/hurryup](http://nitzel.github.io/hurryup/). see you there!
